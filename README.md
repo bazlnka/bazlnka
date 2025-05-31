@@ -8,4 +8,4 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀MAIN FANDOMS / HYPERFIXATIONS !!
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀SONIC, FINAL SPACE, SOUTHPARK, NINJAGO, BFDI, VOLTRON<img src="https://media.tenor.com/f2_C_cViDJYAAAAi/bits-8bits.gif" alt="">
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀SONIC, FINAL SPACE, SOUTHPARK, NINJAGO, BFDI, VOLTRON

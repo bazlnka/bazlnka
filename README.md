@@ -15,9 +15,9 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀''⠀SUPERDUPER COOL PEOPLE !! ''
 
-<p align="@mvrie @cosmopilled @c4taclysmic @LEAFPIN">
-<p align="@floatingflyx @2p00n @kennethwhen @rainebownutz">
-<p align="@KANDYGUTZ @suguruberry @yvoisen">
+ <p align="@mvrie @cosmopilled @c4taclysmic @LEAFPIN">
+ <p align="@floatingflyx @2p00n @kennethwhen @rainebownutz">
+ <p align="@KANDYGUTZ @suguruberry @yvoisen">
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀'⠀ ⠀ꕀ⠀ ⠀'
 

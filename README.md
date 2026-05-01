@@ -2,7 +2,7 @@
 
 <p align="center">┌⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┐</p>
 
-<p align="center"><img src="https://media1.tenor.com/m/iaB0gnBKm9kAAAAC/bfdia-13-bfdia.gif" alt=""></p>
+<p align="center"><img src="https://media1.tenor.com/m/iaB0gnBKm9kAAAAC/bfdia-13-bfdia.gif" alt="" style="width:200%; height:auto;"></p>
 
 <p align="center">└⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┘</p>
 <p align="center">│</p>
@@ -26,4 +26,4 @@
 <p align="center"><img src="https://media1.tenor.com/m/XX4sT5JDeV8AAAAC/mha-foolishest.gif" alt=""></p>
 
 <p align="center">└⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┘</p>
-<p align="center">knifecase knifecasees knifacase</p>
+style="width:60%; height:auto;"

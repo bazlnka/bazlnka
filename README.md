@@ -11,7 +11,7 @@
 
 <p align="center">𝗕𝗙𝗗𝗜, 𝗠𝗛𝗔, finalspace, southpark, ninjago, voltron</p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀│
+<p align="center">│</p>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀''⠀SUPERDUPER COOL PEOPLE !! ''
 

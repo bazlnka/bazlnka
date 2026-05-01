@@ -9,7 +9,7 @@
 
 <p align="center">︵⠀⠀-ˋ⠀ MAIN FANDOMS / HYPERFIXATIONS !!⠀⠀⠀ ݁</p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𝗕𝗙𝗗𝗜, 𝗠𝗛𝗔, finalspace, southpark, ninjago, voltron
+<p align="center">𝗕𝗙𝗗𝗜, 𝗠𝗛𝗔, finalspace, southpark, ninjago, voltron</p>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀│
 

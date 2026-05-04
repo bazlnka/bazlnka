@@ -20,8 +20,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀@KANDYGUTZ @suguruberry @yvoisen
 
 <p align="center">'⠀ ⠀ꕀ⠀ ⠀'</p>
-[ATA](https://tearster.atabook.org/) [STRAW](https://bazinka.straw.page) [RENTRY](https://rentry.co/bazinka) [PRN PAGE](https://en.pronouns.page/@bazinka) [SPACEHEY](https://spacehey.com/profile?id=2511645)
-[sᴛʀᴀᴡᴘᴀɢᴇ](https://bazinka.straw.page)
+
 <p align="center">┌⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┐</p>
 
 <p align="center"><img src="https://media1.tenor.com/m/XX4sT5JDeV8AAAAC/mha-foolishest.gif" alt=""style="width:80%; height:auto;></p>

@@ -20,7 +20,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀@KANDYGUTZ @suguruberry @yvoisen
 
 <p align="center">'⠀ ⠀ꕀ⠀ ⠀'</p>
-[ATA][https://tearster.atabook.org/] [STRAW](https://bazinka.straw.page) [RENTRY](https://rentry.co/bazinka) [PRN PAGE](https://en.pronouns.page/@bazinka) [SPACEHEY](https://spacehey.com/profile?id=2511645)
+(ATA)[https://tearster.atabook.org/] [STRAW](https://bazinka.straw.page) [RENTRY](https://rentry.co/bazinka) [PRN PAGE](https://en.pronouns.page/@bazinka) [SPACEHEY](https://spacehey.com/profile?id=2511645)
 
 <p align="center">┌⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┐</p>
 

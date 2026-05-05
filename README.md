@@ -19,7 +19,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀@floatingflyx @2p00n @kennethwhen @rainebownutz 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀@KANDYGUTZ @suguruberry @yvoisen ⠀⠀‿ ⠀․
 
-[STRAW](https://bazinka.straw.page/)
+[STRAW](https://bazinka.straw.page/) [ATA](https://tearster.atabook.org/)
 
 <p align="center">'⠀ ⠀ꕀ⠀ ⠀'</p>
 

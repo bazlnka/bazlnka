@@ -19,7 +19,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀@floatingflyx @2p00n @kennethwhen @rainebownutz 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀@KANDYGUTZ @suguruberry @yvoisen ⠀⠀‿ ⠀․
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[STRAW](https://bazinka.straw.page/) [ATA](https://tearster.atabook.org/) [SPACEHEY](https://spacehey.com/profile?id=2511645) [PRNPAGE](https://en.pronouns.page/@bazinka) [RENTRY](https://rentry.co/bazinka)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[STRAW](https://bazinka.straw.page/) [ATA](https://tearster.atabook.org/) [SPACEHEY](https://spacehey.com/profile?id=2511645) [PRNPAGE](https://en.pronouns.page/@bazinka) [RENTRY](https://rentry.co/bazinka)
 
 <p align="center">'⠀ ⠀ꕀ⠀ ⠀'</p>
 

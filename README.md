@@ -25,7 +25,7 @@
 
 <p align="center">┌⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┐</p>
 
-<p align="center"><img src="https://cdn.corenexis.com/files/c/4924558720.gif" alt=""style="width:30%; height:auto;></p>
+<p align="center"><img src="https://cdn.corenexis.com/files/c/4924558720.gif" alt=""style="width:20%; height:auto;></p>
 
 <p align="center">└⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┘</p>
 

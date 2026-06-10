@@ -28,5 +28,5 @@
 
 <p align="center">└⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┘</p>
 
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1394858325384102031/1514187186075861083/Untitled1742_20260609001823.png?ex=6a2a7435&is=6a2922b5&hm=64d14641130fdc980f0d88d299030726809171bf1ad76b1b5d9b62c63a8dc7ff&" alt=""style="width:80%; height:auto;></p>
+<p align="center"><img src="https://media.discordapp.net/attachments/1394858325384102031/1514188092884385853/IMG_5711.gif?ex=6a2a750d&is=6a29238d&hm=f2672c5d023650520d133fc614d459bee0b1a25451621cd4931f6a2dbf306707&=" alt=""style="width:80%; height:auto;></p>
 

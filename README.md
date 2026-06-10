@@ -23,7 +23,6 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[STRAW](https://bazinka.straw.page/) ⠀⠀[ATA](https://tearster.atabook.org/) ⠀⠀[SPACEHEY](https://spacehey.com/profile?id=2511645) ⠀⠀[PRNPAGE](https://en.pronouns.page/@bazinka) ⠀⠀[RENTRY](https://rentry.co/bazinka)
 
-<p align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀</p>
 
 <p align="center"><img src="https://cdn.corenexis.com/files/c/4924558720.gif" alt=""style="width:25%; height:auto;></p>
 

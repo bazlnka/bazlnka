@@ -26,4 +26,5 @@
 <p align="center"><img src="https://cdn.corenexis.com/files/c/4924558720.gif" alt=""style="width:25%; height:auto;></p>
 
 <p align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀</p>
-<p align="center">│</p>
+
+<p align="center"><img src="https://tenor.com/view/blue-cyan-pixel-loverlyu-frutiger-aero-gif-3161285445508275357" alt=""style="width:25%; height:auto;></p>

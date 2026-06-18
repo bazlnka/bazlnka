@@ -10,7 +10,7 @@
 
 <p align="center">︵⠀⠀-ˋ⠀ MAIN FANDOMS / HYPERFIXATIONS !!⠀⠀⠀ ݁</p>
 
-<p align="center">𝗕𝗙𝗗𝗜, 𝗠𝗛𝗔, 𝗘𝗪,⠀⠀...fs, sp, lng, vld</p>
+<p align="center">𝗕𝗙𝗗𝗜, 𝗠𝗛𝗔, 𝗘𝗪,⠀⠀... fs, sp, lng, vld</p>
 
 <p align="center">│</p>
 

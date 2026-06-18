@@ -12,7 +12,7 @@
 
 <p align="center">𝗕𝗙𝗗𝗜, 𝗠𝗛𝗔, 𝗘𝗪,⠀⠀... fs, sp, lng, vld</p>
 
-<p align="center"><p align="center"><img src="https://media.tenor.com/K98kXQ0iHJ0AAAAi/blue-cyan.gif" alt=""style="width:10%; height:auto;></p></p>
+<p align="center"><p align="center"><img src="https://media.tenor.com/K98kXQ0iHJ0AAAAi/blue-cyan.gif" alt=""style="width:10%; height:auto;></p>
 
 <p align="center">''⠀SUPERDUPER COOL PEOPLE !! ''</p>
 

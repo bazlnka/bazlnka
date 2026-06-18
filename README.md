@@ -12,7 +12,7 @@
 
 <p align="center">𝗕𝗙𝗗𝗜, 𝗠𝗛𝗔, 𝗘𝗪,⠀⠀... fs, sp, lng, vld</p>
 
-<p align="center">│</p>
+<p align="center"><img width="50" height="50" src="https://media.tenor.com/K98kXQ0iHJ0AAAAi/blue-cyan.gif" alt=""></p>
 
 <p align="center">''⠀SUPERDUPER COOL PEOPLE !! ''</p>
 
@@ -26,3 +26,4 @@
 <p align="center"><img src="https://cdn.corenexis.com/files/c/4924558720.gif" alt=""style="width:25%; height:auto;></p>
 
 <p align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀</p>
+<p align="center">│</p>

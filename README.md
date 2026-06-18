@@ -18,7 +18,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀@mvrie @cosmopilled @c4taclysmic @LEAFPIN⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀@floatingflyx @kennethwhen @yvoisen @KANDYGUTZ
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ @suguruberry @@rainebownutz⠀⠀‿ ⠀․
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ @suguruberry @rainebownutz⠀⠀‿ ⠀․
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[STRAW](https://bazinka.straw.page/) ⠀⠀[ATA](https://tearster.atabook.org/) ⠀⠀[SPACEHEY](https://spacehey.com/profile?id=2511645) ⠀⠀[PRNPAGE](https://en.pronouns.page/@bazinka) ⠀⠀[RENTRY](https://rentry.co/bazinka)
 

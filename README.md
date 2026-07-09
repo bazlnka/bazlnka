@@ -14,7 +14,7 @@
 
 <p align="center"><img width="25" height="25" src="https://media.tenor.com/a6s7EUaD2bcAAAAi/sparkles-glitter.gif" alt=""></p>
 
-<p align="center">''⠀SUPERDUPER COOL PEOPLE !! ''</p>
+<p align="center">''⠀SUPERDUPER ⠀COOL ⠀PEOPLE !! ''</p>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀@mvrie @𝙘𝙤𝙨𝙢𝙤𝙥𝙞𝙡𝙡𝙚𝙙 @c4taclysmic @𝙇𝙀𝘼𝙁𝙋𝙄𝙉⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀@𝙛𝙡𝙤𝙖𝙩𝙞𝙣𝙜𝙛𝙡𝙮𝙭 @kennethwhen @yvoisen @𝙆𝘼𝙉𝘿𝙔𝙂𝙐𝙏𝙕

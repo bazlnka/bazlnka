@@ -22,5 +22,5 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[STRAW](https://bazinka.straw.page/) ⠀⠀[ATA](https://tearster.atabook.org/) ⠀⠀[SPACEHEY](https://spacehey.com/profile?id=2511645) ⠀⠀[PRNPAGE](https://en.pronouns.page/@bazinka) ⠀⠀[RENTRY](https://rentry.co/bazinka)
 
-<p align="center"><img width="150" height="70" src="https://files.catbox.moe/rh5sgp.png" alt=""></p>
+<p align="center"><img width="180" height="100" src="https://files.catbox.moe/rh5sgp.png" alt=""></p>
 

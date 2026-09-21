@@ -5,7 +5,7 @@
 <p align="center"><img width="400" height="230" src="https://media1.tenor.com/m/XX4sT5JDeV8AAAAC/mha-foolishest.gif" alt=""></p>
 
 <p align="center">└⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┘</p>
-<span style="color: ##007C7F;"><p align="center">'' ⠀⠀𝙜𝙤⠀ 𝙗𝙚𝙮𝙤𝙣𝙙⠀ .ᐟ ⠀⠀'' </p></span>
+<span style="color: red;"><p align="center">'' ⠀⠀𝙜𝙤⠀ 𝙗𝙚𝙮𝙤𝙣𝙙⠀ .ᐟ ⠀⠀'' </p></span>
 <p align="center">│</p>
 
 <p align="center">︵⠀⠀-ˋ⠀ MAIN FANDOMS / HYPERFIXATIONS !!⠀⠀⠀ ݁</p>

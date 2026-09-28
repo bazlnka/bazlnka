@@ -23,4 +23,4 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[STRAW](https://bazinka.straw.page/) ⠀⠀[ATA](https://tearster.atabook.org/) ⠀⠀[SPACEHEY](https://spacehey.com/profile?id=2511645) ⠀⠀[PRNPAGE](https://pronouns.cc/@BAZINKA) ⠀⠀[RENTRY](https://rentry.co/bazinka)
 
 <p align="center"><img width="180" height="100" src="https://files.catbox.moe/rh5sgp.png" alt=""></p>
-+ hi
+<font color="green"> Some green text </font>
